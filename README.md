@@ -45,6 +45,6 @@ We may update our Privacy Policy from time to time. Any changes will be reflecte
 
 ## Contact Us
 
-If you have any questions or concerns about this Privacy Policy, please contact us at [contact@email.com].
+If you have any questions or concerns about this Privacy Policy, please contact us at [cosminmarian.paduraru@gmail.com].
 
 By using MENUNI, you agree to the collection and use of information in accordance with this Privacy Policy.
